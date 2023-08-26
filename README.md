@@ -1,2 +1,2 @@
 # infomation
-I'm Cao Bich Ngoc, @cbingoc161, student @VAA. hello every one
+I'm Cao Bich Ngoc, @cbingoc161, student @VN. hello every one
